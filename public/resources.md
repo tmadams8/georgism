@@ -20,6 +20,11 @@ Some resources on Georgism that I recommend
 *   [International Association of Assessment Officers](https://www.iaao.org)
     
 *   [Robert Schalkenbach Foundation](https://schalkenbach.org)
+
+*   [Council of Georgist Organizations](https://cgocouncil.org/)
+
+
+
     
 
 ## Information sites:
